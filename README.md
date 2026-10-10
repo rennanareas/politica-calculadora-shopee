@@ -1,0 +1,1 @@
+# politica-calculadora-shopee
